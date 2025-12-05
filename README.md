@@ -1,4 +1,4 @@
-# Hi 👋, I'm Nurul Hidayah
+# Hi 👋, I'm Raditya Pratama
 
 ### A passionate developer from around the world
 
